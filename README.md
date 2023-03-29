@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sukanta-Patra
-- 👀 I’m interested in Game Dev and Design.
-- 🌱 I’m currently learning new things and ideas to make fun games.
+- 👀 Currently busy gamifying SEL for kids.
+- 🌱 
 - 📫 How to reach me > www.sukantapatra.com > sukantpatra.games@gmail.com
 
 <!---

@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sukanta-Patra
-- 👀 Currently busy gamifying SEL for kids.
+- 👀 Currently busy making games great again.
 - 🌱 
 - 📫 How to reach me > www.sukantapatra.com > sukantpatra.games@gmail.com
 
